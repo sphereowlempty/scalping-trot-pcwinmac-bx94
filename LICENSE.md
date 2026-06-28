@@ -1,4 +1,4 @@
-# 
+# VIP scalping trading bot modules complémentaires for Mac OS | Premium scalping trading bot modules complémentaires for PC Windows. Featuring pools de liquidité DEX and API d'échange décentralisé — optimized for maximum performance.
 
 
 
